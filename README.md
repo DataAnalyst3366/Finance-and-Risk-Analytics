@@ -1,3 +1,0 @@
-# Finance-and-Risk-Analytics 
-
-
